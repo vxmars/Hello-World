@@ -1,2 +1,3 @@
 # Hello-World
 I'm new here so just learning
+This is super intimidating, but i've always wanted to learn. I believe anything can be learned as long as you have a passion for what youre learning and a will to learn. So here goes...
